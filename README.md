@@ -1,4 +1,4 @@
-# TNTCloud机场官网地址
+# TNTCloud官网地址
 
 TNTCloud(tntyun)是一家 IPLC 内网专线加速器，原生 IP 节点，服务稳定可靠，是老牌网络加速分站。套餐低至10元每月，平价稳定，支持奈飞、ChatGPT等流媒体和AI工具解锁，性价比很不错。
 
