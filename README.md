@@ -4,13 +4,13 @@ TNTCloud(tntyun)是一家 IPLC 内网专线加速器，原生 IP 节点，服务
 
 官网：[tntyun.cc](https://a05.tntvipaffb04.cc/#/register?code=KrdvuEmw)
 
----
+## TNTCloud(tntyun)优惠码
 
-**温馨提示：任何服务均有跑路风险，请自行注意防范！**
+不定期更新tntyun优惠信息。
 
-**本页面仅分享网络信息，不做推荐，有问题请自行联系服务商处理！**
+新人优惠 85 折优惠码：[TNT85](https://a05.tntvipaffb04.cc/#/register?code=KrdvuEmw)
 
----
+双旦限时8折优惠码：[Merry80](https://a05.tntvipaffb04.cc/#/register?code=KrdvuEmw)
 
 ## TNTCloud特点
 
@@ -31,16 +31,6 @@ TNTCloud(tntyun)是一家 IPLC 内网专线加速器，原生 IP 节点，服务
     TNTVIP2：月付 220g ¥40.00 季付¥108.00 半年付¥204.00 年付¥336.00
     TNTVIP3：月付 460g ¥80.00 季付¥216.00 半年付¥408.00 年付¥768.00
     TNTVIP4：月付 1100g ¥160.00 季付¥432.00 半年付¥816.00 年付¥1536.00
-
-## TNTCloud(tntyun)优惠码
-
-不定期更新tntyun优惠信息。
-
-新人优惠 85 折优惠码：[TNT85](https://a05.tntvipaffb04.cc/#/register?code=KrdvuEmw)
-
-国庆中秋双节优惠！！！
-
-全套餐推出8折优惠码：[2510815](https://a05.tntvipaffb04.cc/#/register?code=KrdvuEmw)
 
 ---
 
