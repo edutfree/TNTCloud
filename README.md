@@ -2,15 +2,15 @@
 
 TNTCloud(tntyun)是一家 IPLC 内网专线加速器，原生 IP 节点，服务稳定可靠，是老牌网络加速分站。套餐低至10元每月，平价稳定，支持奈飞、ChatGPT等流媒体和AI工具解锁，性价比很不错。
 
-官网：[tntyun.cc](https://a05.tntvipaffb04.cc/#/register?code=KrdvuEmw)
+官网：[tntyun.cc](https://a07.tntvipaffb06.cc/#/register?code=KrdvuEmw)
 
 ## TNTCloud(tntyun)优惠码
 
 不定期更新tntyun优惠信息。
 
-新人优惠 85 折优惠码：[TNT85](https://a05.tntvipaffb04.cc/#/register?code=KrdvuEmw)
+新人优惠 85 折优惠码：[TNT85](https://a07.tntvipaffb06.cc/#/register?code=KrdvuEmw)
 
-双旦限时8折优惠码：[Merry80](https://a05.tntvipaffb04.cc/#/register?code=KrdvuEmw)
+双旦限时8折优惠码：[Merry80](https://a07.tntvipaffb06.cc/#/register?code=KrdvuEmw)
 
 ## TNTCloud特点
 
