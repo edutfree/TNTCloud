@@ -10,7 +10,7 @@ TNTCloud(tntyun)是一家 IPLC 内网专线加速器，原生 IP 节点，服务
 
 新人优惠 85 折优惠码：[TNT85](https://a07.tntvipaffb06.cc/#/register?code=KrdvuEmw)
 
-双旦限时8折优惠码：[Merry80](https://a07.tntvipaffb06.cc/#/register?code=KrdvuEmw)
+2026春节限时8折优惠码：[TNT2026](https://a07.tntvipaffb06.cc/#/register?code=KrdvuEmw)
 
 ## TNTCloud特点
 
